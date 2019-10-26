@@ -8,8 +8,7 @@ Avenida dos Coqueiros n ° 452 – Mairiporã CEP: 07600-000
 Phone: (11) 9 9705-5885 / E-mail: thiagoyoshiaki@gmail.com
 
 OBJECTIVE
-
-Position of consultant Data engineer, senior ADVPL developer and ERPmanagement.
+Position of consultant Data engineer, senior ADVPL developer and ERP Management.
 
 TRAINING
 •	Professional with 14 years of experience in the area of information technology, with capacity for organization, analysis, team management and Projects, leadership and Availabilityand for travel. I have interest and willingness to assume new responsibilitiesand challenges, with dinamism, interest in new knowledge, spirit of Team, self-motivation and pro-activity.
