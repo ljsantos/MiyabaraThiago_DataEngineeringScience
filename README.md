@@ -32,7 +32,6 @@ Main activities:
 - TheLTO level of knowledge in ADVPL development required, contemplating MVC methodology.
 - Participation in survey and definition of new processes and improvement of existing routines.
 
-
 •	2012-2013 – ORTENG Project
 Position : ConsultantR
 Main activities:
